@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ringo0022
 - 👀 I’m interested in ... more internet power! plus a heaithy dose of wildlife, whenever i can get it.
-- 🌱 I’m currently learning ... how to take over the internet and make it beter for all grandma's.
+- 🌱 I’m currently learning ... how to take over the internet and make it beter for all grandma's.lol
 - 💞️ I’m looking to collaborate on ... all my effort with nords,teachers, and instructors.
 - 📫 How to reach me ...??
 - 😄 Pronouns: ...
